@@ -21,9 +21,9 @@ Perfect for **Group Admins, Developers & Power Users**.
 | **🔥 Lucifer (DemonEye)** | GitHub • YouTube • Telegram | ✔️ Protected Code |
 
 ### 🔗 Connect With Developer  
-**YouTube:** https://youtube.com/@demoneye_official  
-**Telegram:** https://t.me/Next_DYS  
-**GitHub:** https://github.com/DemonEye143  
+**YouTube:** 𝗠𝗔𝗠𝗨𝗡 ✘ 𝗕𝗢𝗧
+**Telegram:** 𝗠𝗔𝗠𝗨𝗡 ✘ 𝗕𝗢𝗧
+**GitHub:** 𝗠𝗔𝗠𝗨𝗡 ✘ 𝗕𝗢𝗧
 
 ---
 
